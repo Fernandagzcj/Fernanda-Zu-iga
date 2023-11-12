@@ -1,2 +1,2 @@
-# Fernanda-Zu-iga
-Fernanda Gabriela Zuñiga Camacho
+# Fernanda-Gabriela-Zuniga-Camacho
+Fernanda Zuñiga
